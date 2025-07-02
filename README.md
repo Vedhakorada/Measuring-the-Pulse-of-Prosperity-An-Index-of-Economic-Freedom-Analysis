@@ -1,1 +1,1 @@
-# Measuring-the-Pulse-of-Prosperity-An-Index-of-Economic-Freedom-Analysis
+Myself This is Korada Gowthami of the Team id LTVIP2025TMID50685 Sir, i am member of my Team and didn`t have Response from my team leader or any other members from my team. so i have completed this project by Myself so i didn`t create folders or my team memebers. I hope this message reaches you well. Thank you.
